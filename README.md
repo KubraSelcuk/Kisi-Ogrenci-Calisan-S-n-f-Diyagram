@@ -1,0 +1,1 @@
+# Kisi-Ogrenci-Calisan-S-n-f-Diyagram
